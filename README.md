@@ -2,11 +2,11 @@
 ### Do's and Don't's when taking care of chewie
 
 # Do's:
+### Do give him love
 ### Do take him out twice a day, once in the morning and once in the evening.
 ### Do feed him twice a day after the walk, one yellow measuring cup of food per feeding.
 ### Do put him in his crate at night before you sleep to prevent him getting into mischief in the morning before you wake up
 ### Do use the provided poop bags for collecting his poop
-### Do give him love
 ### Do correct him if he's licking the floor or doing anything he's not supposed to.
 ### Do keep him locked up when you guys eat, to prevent him from eating crumbs in case anything falls during the meal
 
