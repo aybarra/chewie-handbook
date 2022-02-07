@@ -15,35 +15,7 @@
 Rationale: He's supposed to be on a diet, and this is just to prevent accidental ingestion of food that's not good for him. 
 
 ### Don't let him off leash outside your apartment
-Rationale: His recall is not good, so if he gets free from you he may not immediately come back to you....depending on where that happens it could be dangerous for him and for you.
+Rationale: His recall is not good, so if he gets free from you he may not immediately come back to you....depending on where that happens it could be dangerous for him and for you. If he does get loose your best bet is to try and lure him back with a treat. 
 
-### Don't take him to a dog park during his stay
-Rationale: There's a lot of unpredictability taking dogs to a dog park, just to avoid possible injury best to avoid it. 
-
-# Suggested schedule:
-| | Tuesday (Sept 28) | Wednesday  (Sept 29) | Thursday  (Sept 30) |
-|---|---|---|---|
-| 8am  |   |   | |
-| 9am  |   | Morning walk, guaranteed poop, followed by morning feeding  | Morning walk, guaranteed poop, followed by morning feeding  |
-| 10am  |   |   | |
-| 11am   | Dropoff |   | |
-| 12pm  |   |   |  |
-| 1pm  |   |   | |
-| 2pm   |   |   | |
-| 3pm  |   |   |  |
-| 4pm  |   |   | |
-| 5pm  |   |   | |
-| 6pm  | Evening walk, possible poop, followed by evening feeding | Evening walk, possible poop, followed by evening feeding  | Evening walk, possible poop, followed by evening feeding |
-| 7pm  |   |   | |
-| 8pm  |   |   | |
-| 9pm  |   |   | |
-| 10pm  |   |   | |
-| 11pm  |   |   | |
-| 12am  |   |   | |
-| 1am  |   |   | |
-| 2am  |   |   | |
-| 3am  |   |   | |
-| 4am  |   |   | |
-| 5am  |   |   | |
-| 6am  |   |   | |
-| 7am  |   |   | |
+### Avoid taking him to a dog park with big dogs during his stay
+Rationale: He will find the biggest dog in the pen and get them to chase him.... if they catch him and the big dog is rough he's gonna get hurt.
