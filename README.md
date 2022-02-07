@@ -19,3 +19,6 @@ Rationale: His recall is not good, so if he gets free from you he may not immedi
 
 ### Avoid taking him to a dog park with big dogs during his stay
 Rationale: He will find the biggest dog in the pen and get them to chase him.... if they catch him and the big dog is rough he's gonna get hurt.
+
+# General Notes:
+1. His energy will match your input and enthusiasm, if you are down to play he will play....if you want to chill and sit on the couch he'll come sit next to you. 
