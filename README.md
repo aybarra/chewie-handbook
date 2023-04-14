@@ -27,7 +27,7 @@ Rationale: He will find the biggest dog in the pen and get them to chase him....
  - 1 dog bowl
  - 1 play pen + springy hamster water drip cable holder
  - 1 hamster water drip bottle
- - 2 bags dog food with yellow scoope (The opened bag will be finished during our trip, the unopened bag will be started...each bag lasts about 6 weeks)
+ - 2 bags dog food with yellow scoop (The opened bag will be finished during our trip, the unopened bag will be started...each bag lasts about 6 weeks)
    - He eats 1 yellow scoop of food in the morning, and one in the evening *after* he is walked
  - 1 Towel for drying off after rainy walks/bathing
  - 1 pill splitter
