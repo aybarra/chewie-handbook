@@ -21,6 +21,7 @@ Rationale: He will find the biggest dog in the pen and get them to chase him....
 
 # General Notes:
 1. His energy will match your input and enthusiasm, if you are down to play he will play....if you want to chill and sit on the couch he'll come sit next to you. 
+2. You may notice a patch of fur missing on his right side, this has been checked and rechecked and confirmed not to be ringworm, he was provided an injection that should prevent him from being itchy on that side so he shouldn't scratch at it (I'm pretty sure he can't reach at that part of his back but he can maybe rub against furniture), but please let us know if that changes.
 
 # Included Equipment & Consumables
  - 1 dog bowl
@@ -46,6 +47,8 @@ Rationale: He will find the biggest dog in the pen and get them to chase him....
  - 1 brown antler costume
  - 1 pink baby shirt
  - 1 maroon vest
+ - 1 cone of shame (use in case of ear infection or anything that will require him to not lick at his appendages)
+ - 1 bottle oticetic wash (you can take a cotton balls and wet with that solution and wipe out his ears for preventative care, in case of ear infection he may require actually flushing his ears with that solution which is tricky to do as one person alone.... I recommend doing that in the bathtub because the solution smells gross and when he shakes his head immediately after all the gunk in his ears is going to go flying in the bathtub.) If you notice any serious red infection in his ears please let us know and we can advise further. If it gets bad he may require a trip to the vet, but they're going to give you a refill of said solution plus some additional ear medicine which will also be a PITA to administer. 
  
 ![received_2081947555335540](https://user-images.githubusercontent.com/287935/231940184-b164b4ca-7a53-407d-8600-f3efc60095f9.jpeg)
 
