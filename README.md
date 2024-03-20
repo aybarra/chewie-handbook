@@ -37,7 +37,7 @@ Rationale: He will find the biggest dog in the pen and get them to chase him....
  - 2 harneses (1 red, 1 blue) (feel free to leave it on him or take it off when he's returned inside your apartment if you've  
  - 1 bag of treats (should be used sparingly.... < 3 a day and only for good behavior not for general feeding)
  - 1 white bed (This can be put anywhere for sleep time, or nap time during the day, please do not let him destroy it.... and to reiterate above, please don't leave it in the crate with him when you're away).
- - 1 white blanket with boston print (this can be placed in the crate when you need to use it, otherwise it can accompany him when sleeping 
+ - 1 white blanket with boston print (this can be placed in the crate when you need to use it, otherwise it can accompany him when sleeping) 
  - 1 yellow rain coat
  - 1 blue jacket
 
