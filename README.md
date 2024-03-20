@@ -20,7 +20,12 @@ Rationale: He will find the biggest dog in the pen and get them to chase him....
 
 # General Notes:
 1. His energy will match your input and enthusiasm, if you are down to play he will play....if you want to chill and sit on the couch he'll come sit next to you.
-2. Consider using the crate at night if you find he's exploring too much at night, I suspect he'll get sleepy at the normal times so that won't be an issue, but just in case use the crate to avoid him getting into anything while you're sleeping. Depending on how the light hits your apartment he'll be up when the sun comes up. 
+2. Consider using the crate at night if you find he's exploring too much at night, I suspect he'll get sleepy at the normal times so that won't be an issue, but just in case use the crate to avoid him getting into anything while you're sleeping. Depending on how the light hits your apartment he'll be up when the sun comes up.
+3. We welcome daily updates, we'll be happy to hear from you!
+
+# Vet Info:
+- His normal vet is Banfield Pet Hospital of Queen Anne (address: 512 1st Ave N, Seattle, WA 98109 phone: (206) 285-5161), if anything comes up before 7pm you can call them and try and take him there, but otherwise pursue whatever vet is closest to pursue care.
+- If anything comes up please feel free to call us. 
 
 # Included Equipment & Consumables
  - 2 dog bowls
