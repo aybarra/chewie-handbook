@@ -21,36 +21,23 @@ Rationale: He will find the biggest dog in the pen and get them to chase him....
 
 # General Notes:
 1. His energy will match your input and enthusiasm, if you are down to play he will play....if you want to chill and sit on the couch he'll come sit next to you. 
-2. You may notice a patch of fur missing on his right side, this has been checked and rechecked and confirmed not to be ringworm, he was provided an injection that should prevent him from being itchy on that side so he shouldn't scratch at it (I'm pretty sure he can't reach at that part of his back but he can maybe rub against furniture), but please let us know if that changes.
 
 # Included Equipment & Consumables
- - 1 dog bowl
- - 1 play pen + springy hamster water drip cable holder
- - 1 hamster water drip bottle
- - 2 bags dog food with yellow scoop (The opened bag will be finished during our trip, the unopened bag will be started...each bag lasts about 6 weeks)
-   - He eats 1 yellow scoop of food in the morning, and one in the evening *after* he is walked
- - 1 Towel for drying off after rainy walks/bathing
- - 1 pill splitter
- - 1 box trifexis (Only applicable for @Roxana, please quarter one pill and feed it to him on 5/8/2023 via apple/small piece of hot dog/blueberries anything soft. He will smell there's something weird about what you're feeding him so it may take a few tries for him to consume it all)
- - 1 Nail grinder and charging cable (use this whenever his nails feel they're getting long, he's not afraid of the sound, but I would recommend grinding somewhere its easy to clean up/vacuum)
- - 1 bottle shampoo (if he gets muddy or starts to smell you can give him a bath in the tub)
- - 1 paw brush (to be used whenever you want to deep clean his paws)
- - 1 tube toothpaste (one more on the way via Amazon @David) Please try and brush his teeth once a day if possible
- - 2 Chuck it balls (these are his favorite, and if its shitty weather outside a good way to burn energy via fetch... just make sure you wait 30ish minutes after feeding to begin play)
+ - 2 dog bowls
+ - 1 tub of dog food with yellow scoop
+   - He eats 1 yellow scoop of food in the morning *after* he is walked, and one in the evening *after* he is walked
+   - The tub of food will be filled in case we're delayed at all, but keep in mind he will *not* finish the entire tub before we return from our trip. Strictly feed him 2 yellow scoops of food total per day.  
+ - 1 Towel for drying off after rainy walks
+ - 1 Crate
+   - This is useful for situations where you need to go get groceries or when you need to go somewhere he cannot tag along....he won't enjoy it and will probably whine....but eventually he will just try and sleep. Please do not leave his bed in the crate with him, because he will destroy it in protest. 
+ - 1 Chuck it ball (these are his favorite, and if its rainy weather outside he can burn a lot of energy playing fetch...just make sure you wait 30ish minutes after feeding to begin play)
  - N rolls of poop bags
- - 2 leashes
- - 2 harneses 
+ - 1 blue leash 
+ - 2 harneses (1 red, 1 blue) (feel free to leave it on him or take it off when he's returned inside your apartment if you've  
  - 1 plastic box of treats (should be used sparingly.... < 5 a day and only for good behavior not for general feeding)
- - 1 green bed
+ - 1 white bed (This can be put anywhere for sleep time, or nap time during the day, please do not let him destroy it.... and to reiterate above, please don't leave it in the crate with him when you're away).
+ - 1 white blanket with boston print
  - 1 yellow rain coat
- - 1 brown eddie bauer jacket
- - 1 brown antler costume
- - 1 pink baby shirt
- - 1 maroon vest
- - 1 cone of shame (use in case of ear infection or anything that will require him to not lick at his appendages)
- - 1 bottle oticetic wash (you can take a cotton balls and wet with that solution and wipe out his ears for preventative care, in case of ear infection he may require actually flushing his ears with that solution which is tricky to do as one person alone.... I recommend doing that in the bathtub because the solution smells gross and when he shakes his head immediately after all the gunk in his ears is going to go flying in the bathtub.) If you notice any red infection in his ears please let us know and we can advise further. If it gets bad he may require a trip to the vet, but they're going to give you a refill of said solution plus some additional ear medicine which will also be a PITA to administer. Note ear flushing is Chewie's least favorite activity so we're crossing our fingers you won't need this.
- 
-![received_2081947555335540](https://user-images.githubusercontent.com/287935/231940184-b164b4ca-7a53-407d-8600-f3efc60095f9.jpeg)
 
 # Commands he's familiar with:
 - Sit
