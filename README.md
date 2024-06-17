@@ -7,12 +7,13 @@
 ### Do feed him twice a day after the walk, one yellow measuring cup of food per feeding.
 ### Do use the provided poop bags for collecting his poop
 ### Do correct him if he's licking the floor or doing anything he's not supposed to.
+### Do utilize the crate/play pen if you need to leave to run an errand or go somewhere without him
 
 # Don't's:
 ### Don't give him any human food
 Rationale: He's supposed to be on a diet, and this is just to prevent accidental ingestion of food that's not good for him. 
 
-### Don't let him off leash outside your house
+### Don't let him off leash outside your house/apartment
 Rationale: His recall is not good, so if he gets free from you he may not immediately come back to you....depending on where that happens it could be dangerous for him and for you. If he does get loose your best bet is to try and lure him back with a treat. 
 
 ### Avoid taking him to a dog park during his stay
