@@ -26,7 +26,7 @@ Rationale: He will find the biggest dog in the pen and get them to chase him....
 
 # Vet Info:
 - His normal vet is Banfield Pet Hospital of Queen Anne (address: 512 1st Ave N, Seattle, WA 98109 phone: (206) 285-5161), if anything comes up before 7pm you can call them and try and take him there, but otherwise pursue whatever vet is closest to pursue care.
-- If anything comes up please feel free to call us. 
+- If anything comes up please feel free to message us. 
 
 # Included Equipment & Consumables
  - 2 dog bowls
