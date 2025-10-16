@@ -23,6 +23,9 @@ Rationale: He will find the biggest dog in the pen and get them to chase him....
 ### Avoid interaction with small kids
 Rationale: He is very enthusiastic but is not gentle with little ones, he may knock them over or bump them in the face. 
 
+### Don't let him eat grass or any mulch/clippings outside
+Rationale: He will throw it up if he eats too much, sometimes he's just weird and likes to eat grass...just pull him away when it happens.
+
 # General Notes:
 1. His energy will match your input and enthusiasm, if you are down to play he will play....if you want to chill and sit on the couch he'll come sit next to you.
 2. Consider using the playpen at night if you find he's exploring too much at night, I suspect he'll get sleepy at the normal times so that won't be an issue, but just in case use the playpen to avoid him getting into anything while you're sleeping. Depending on how the light hits the condo he'll be up when the sun comes up.
